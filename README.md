@@ -26,7 +26,7 @@ The trio set to work, with Groudon raising land violently, creating volcanoes an
 
 Sure enough, Kyogre's waters started to corrode Groudon's land, and this angered him. The two battled, but Rayquaza broke it up, and sent Groudon deep underground, while Kyogre was sent deep into the oceans, before returning out into the ozone layer.
 
-Soon, Arceus returned, and it tried to make life, but failed miserably. So it created **Regigigas**. Regigigas moved the continents with its bare hands, piecing them together like a puzzle.
+Soon, Arceus returned, and it tried to make life, but failed miserably. So it created **Regigigas**. Regigigas moved the continents with its bare hands, piecing them together like a puzzle.    
 ![Regigigas](https://serebii.net/pokedex-sv/icon/new/486.png)
 
 When the final chunk of land was put into place, the world sprung to life, with grass and trees sprouting everywhere. Finally, the world was ready for life.
