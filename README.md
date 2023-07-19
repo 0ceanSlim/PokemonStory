@@ -133,4 +133,4 @@ Ho-oh burnt down the tower with its Sacred Fire. Most escaped, but the three Pok
 
 Humans continued to evolve and take over the land, and Pokémon continued to work alongside and for them for many, many years.
 
-That is the story of the Pokémon World.
+## **That is the story of the Pokémon World.**
